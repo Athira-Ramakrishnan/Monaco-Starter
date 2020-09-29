@@ -1,1 +1,2 @@
 # Monaco-Starter
+This recipe is of the Monaco-Starter dish. It is a cheesy dish which can be served as a starter or as a snack. Best of all, we don't need fire to cook the dish. The time that is consumed to make it is maximum 15 minutes and minimum 10 minutes. The Monaco-Starter dish can also be made by children as it is very easy to make. The dish is all time favourite.  
